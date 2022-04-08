@@ -1,1 +1,1 @@
-# Tuga2-latihan1
+# Tugas2-latihan1
